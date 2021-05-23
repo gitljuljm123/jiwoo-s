@@ -1,2 +1,2 @@
 Lee Jiwoo
-kmsw
+kookmin.univ sw
