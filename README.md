@@ -1,2 +1,3 @@
 Lee Jiwoo
-kookmin.univ sw
+kookmin.univ SW dept.
+ 
