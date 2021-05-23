@@ -1,3 +1,3 @@
-20213061	Lee Jiwoo
-kookmin.univ SW dept.
+Jiwoo Lee:20213061
+kookmin univ. SW dept.
  
